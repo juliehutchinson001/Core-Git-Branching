@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-When Duane opened the door, something wonderful happened. He met a Unicorn King that was trapped in the room of the secret wooden door. He looked so sad that Duane even noticed his pain. So Duane who granted him magic powers.
+When Duane opened the door, something wonderful happened. He met a Unicorn King that was trapped in the room of the secret wooden door. He looked so sad that Duane even noticed his pain. So Duane decided to keep the door open and free him. In retrospective, this strange creature looked into Duane's intentions and heart, so the Unicorn King granted him magic powers.
 The end.
 
 ## Cast
