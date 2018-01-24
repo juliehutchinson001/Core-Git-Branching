@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Duane noticed a secret wooden door at the end of the path that was being guarded by one of the zoo zookeeper's.
+Duane noticed a secret wooden door at the end of the path that was being guarded by one of the zoo zookeeper's. Duane was relieved to see the zookeeper was deeply asleep, so he snitched the secret's door keys out of the zookeeper's uniform, glanced over his worker tag that said Braus (mmm, must be his name, Duane thought to himself) and decided to open the door.
 
 Duane met the Unicorn King who granted him magic powers.
 The end.
